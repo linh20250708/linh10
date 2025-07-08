@@ -10,4 +10,4 @@
 
 本站整合日韩一区二区热门视频资源，涵盖精品剧情、重口风格、麻豆原创等多种类型。播放体验高速流畅，界面简洁清爽，全面支持移动端与PC端，打造便捷舒适的观影环境。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/linh20250708/linh10 ）</span>
